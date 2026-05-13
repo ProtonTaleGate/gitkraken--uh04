@@ -1,4 +1,4 @@
-# 
+# Get the ultimate GitKraken for PC | GitKraken for Windows snippet with automatic GitKraken for PC | GitKraken for Windows Snippet | stashing + repository-management. Featuring
 
 
 
